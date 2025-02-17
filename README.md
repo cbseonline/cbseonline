@@ -21,7 +21,7 @@ I am a **Certified Ethical Hacker**, **Teacher**, and **Author** with a passion 
 - 📲 **WhatsApp Channel:** [Join Here](https://whatsapp.com/channel/0029VaAgNtx0bIdp2Rm7VX2p)  
 - 🔗 **Facebook:** [Profile Link](https://www.facebook.com/profile.php?id=100028492753930)  
 - 🏫 **Education Platform:** [@AcademeX10th](https://www.instagram.com/AcademeX10th)  
-- 📧 **Email:** (Optional - Add if needed)  
+- 📧 **Email:** [pratapsanjaysir@gmail.com](mailto:pratapsanjaysir@gmail.com)  
 
 ---
 
